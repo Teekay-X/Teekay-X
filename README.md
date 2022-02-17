@@ -1,4 +1,4 @@
-## HEY There 😀, IT'S ME Teekay-X
+## Hey there !, Teekay-X overhere 😀
 
 <p align="center">
 <!--  <img alt="profile pic" width="460px" src="https://avatars1.githubusercontent.com/Teekay-X" /> -->
